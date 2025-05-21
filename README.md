@@ -1,4 +1,4 @@
-## Kaue Bandido 👋
+## Kaue 👋
 
 <p align="left">
     <a href="https://www.youtube.com/@larissakich?sub_confirmation=1">
